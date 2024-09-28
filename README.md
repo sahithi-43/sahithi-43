@@ -1,8 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=600&lines=Holaaaaa+!++I'm+sahithi+naidu;A+engineer+turned+data+scientist)](https://hajiafrid.vercel.app) [![Doraemon](https://tenor.com/en-GB/view/hello-doraemon-nobita-hi-ドラえもん-gif-19920970.gif)](https://tenor.com/en-GB/view/hello-doraemon-nobita-hi-ドラえもん-gif-19920970.gif)
 
-Reach me on [LinkedIn](https://www.linkedin.com/in/contacthazi/) to chat about data, insights, and the stories they tell  👋
-
-You can also connect with me on [X](https://x.com/HaziAfrid).
+Reach me on [LinkedIn](https://www.linkedin.com/in/sahithi-43s/) to chat about data, insights, and the stories they tell  👋
 
 Until then, remember:  « Believe Before Beginning » 
 
